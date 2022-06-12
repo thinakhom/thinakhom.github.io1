@@ -1,1 +1,0 @@
-# thinakhom.github.io1
